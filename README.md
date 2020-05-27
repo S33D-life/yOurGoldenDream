@@ -1,0 +1,2 @@
+# yOurGoldenDream
+Evolving ‘yOur Golden Dream’ document into a fully co-creative process stewarded by all humanity, and where the dream blooms into reality. Mission is  to share the dream, and to steward the methodology by which people can suggest changes/additions to ‘yOur Golden Dream’ document and collective assets. While honouring the contributions of those who contribute towards the blooming of the dream into reality
